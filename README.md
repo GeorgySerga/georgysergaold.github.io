@@ -1,1 +1,0 @@
-# georgyserga.github.io
